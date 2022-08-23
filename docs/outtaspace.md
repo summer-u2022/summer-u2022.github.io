@@ -1,4 +1,4 @@
-# Party
+# Outta Space Party
 
 ![Alt text](bodypainting/IMG_3195.JPG?raw=true "1")
 ![Alt text](bodypainting/IMG_3196.JPG?raw=true "1")
